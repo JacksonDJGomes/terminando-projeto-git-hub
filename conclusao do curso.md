@@ -1,0 +1,1 @@
+grande amor é a sabedoria 
